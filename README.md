@@ -1,3 +1,3 @@
 # My CV
 
-Just in case yoy want to see my cv.
+Just in case you want to see my cv.
